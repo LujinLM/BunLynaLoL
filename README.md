@@ -3,16 +3,14 @@
   ─────── ♡ 🎀 ♡ ───────
 </p>
 <p align="center">
-  Bun! 我不知道还能说什么！
+  ola! 我不知道还能说什么！
 </p>
 <details>
 <summary>🎀 Best friend/besties</summary>
 
-🫰 **Wip**  
-He was someone who always stood by and comforted everyone, including me; he treated me and everyone else very well. ♡
+🫰 **Wip / Cake**  
+He and she was someone who always stood by and comforted everyone, including me; he n she treated me and everyone else very well. ♡
 
-💌 **Shin**  
-She always plays with me, she's my motivation to keep going, she's sociable! ♡
 
 🧸 **Jen**  
 A young girl who was always there for everyone, including me; she was kind and cheerful! I really admired her! ♡
